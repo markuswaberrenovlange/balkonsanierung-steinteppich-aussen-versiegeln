@@ -5,8 +5,7 @@ Ein Balkon ist täglich Regen, UV-Strahlung, Temperaturschwankungen und Schmutz 
 Wer eine **Balkonsanierung mit Steinteppich außen versiegeln** möchte, sollte deshalb nicht nur auf die Farbe und Körnung der Steine achten. Auch der Zustand des vorhandenen Balkons und die Anforderungen an den Bodenaufbau spielen eine wichtige Rolle. In diesem Ratgeber zur [Balkonsanierung mit Steinteppich und Versiegelung](https://renovlange.de/blog/balkonsanierung-steinteppich-aussen-versiegeln) erfahren Sie, worauf es bei der Planung und Ausführung ankommt.
 
 ## Warum ist die Versiegelung eines Steinteppichs wichtig?
-<img width="1200" height="674" alt="Balkonsanierung Steinteppich auen versiegeln-50kb" src="https://github.com/user-attachments/assets/f85d00b4-6400-4d06-aa50-4a1565feafe9" />
-
+<img width="1824" height="1024" alt="Balkonsanierung Steinteppich außen versiegeln3" src="https://github.com/user-attachments/assets/eac1bcbd-2d3d-4a2a-8f10-8742e46fa656" />
 
 Ein Steinteppich besteht aus Natursteinkörnungen, die mit einem geeigneten Bindemittel verbunden werden. Je nach System bleibt die Oberfläche offenporig oder wird zusätzlich mit einem passenden Produkt behandelt.
 
